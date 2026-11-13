@@ -1,6 +1,5 @@
-
 <div align="center">
-  <img src="https://i.pinimg.com/736x/ab/fa/28/abfa28eb90a88ec271a508fe6b368d84.jpg"width="350">
+    <img src="https://file.garden/amCuDGcSQR36Di_1/king"width="490"/>
 </div>
-
-<p align="center">   <a href= "https://rentry.co/zoro-">rentry</a>   <a href= "https://github.com/toewrestlergod3000">main</a>   ⯎ </p>
+<p align="center"> </p>
+<p align="center"> <a href= "https://lluc.atabook.org/">atabook</a>  ᲼ ᲼ <a href= "https://rentry.co/futboI">rentry</a>  ᲼ ᲼   ᲼ ᲼   ᲼ ᲼   ᲼ ᲼ <a href= "https://www.last.fm/user/lalalaluc">last.fm</a>  ᲼ ᲼ <a href= "https://guns.lol/birdofprey">guns.lol</a>  ᲼ ✦</p>
